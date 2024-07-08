@@ -2,7 +2,7 @@
 - 👀 I’m interested in пиво
 - 🌱 I’m currently learning пиво
 - 💞️ I’m looking to collaborate on пиво
-- 📫 How to reach me пмво
+- 📫 How to reach me пиво
 - 😄 Pronouns: пиво
 - ⚡ Fun fact: пиво
 
